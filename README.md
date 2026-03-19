@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Python, SQL**
 
-- 📫 How to reach me **jingles@alphadecimals.com**
+- 📫 How to reach me **jujuwesley05@gmail.com**
 
 - ⚡ Fun fact **I love nature, warm meals and happy chill days!**
 
